@@ -9,9 +9,12 @@ BitzNet官网网址（长期稳定可用）
 极其优质的线路，原先走的是超高性价比路线（同质量内打遍天下无敌手级别），现在改成了使用体验优先
 价格相对变贵，但稳定性等极强
 
-[长期稳定官网网址](https://www.bitzapp.uk/aff=ITlfQijS)（长期可用）
-[备用1](https://bitzapp.uk/aff=ITlfQijS)
-[备用2](https://dd.al/HVy2v)
+如果有Bitz相关问题可以提Issue，尽量看情况解决
+
+[长期稳定可用官网网址](www.gobitznet.com/aff=ITlfQijS)（长期可用）
+[备用1](https://www.bitzapp.uk/aff=ITlfQijS)
+[备用2](https://bitzapp.uk/aff=ITlfQijS)
+[备用3](https://dd.al/HVy2v)
 
 ## MESL
 
