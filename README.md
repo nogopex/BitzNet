@@ -15,12 +15,13 @@ BitzNet最新优惠
 **新用户九折优惠码： ```NEW9```**
 
 [**长期稳定可用官网网址**](https://j1.bnaffloop.com/#/register?code=ITlfQijS)（长期可用）
-[备用1](https://www.bitzapp.uk/aff=ITlfQijS)
-[备用2](https://bitzapp.uk/aff=ITlfQijS)
-[备用3](https://dd.al/HVy2v)
-[备用4](https://www.gobitznet.com/aff=ITlfQijS)
-[备用5](https://www.thebitznet.com/aff=ITlfQijS)
-[备用6](https://www.tobitznet.com/aff=ITlfQijS)
+[备用1](https://www.bitzconnect.com/aff=ITlfQijS)
+[备用2](https://www.bitzapp.uk/aff=ITlfQijS)
+[备用3](https://bitzapp.uk/aff=ITlfQijS)
+[备用4](https://dd.al/HVy2v)
+[备用5](https://www.gobitznet.com/aff=ITlfQijS)
+[备用6](https://www.thebitznet.com/aff=ITlfQijS)
+[备用7](https://www.tobitznet.com/aff=ITlfQijS)
 
 ## MESL
 
