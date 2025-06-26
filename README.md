@@ -14,11 +14,16 @@ BitzNet最新优惠
 
 **新用户九折优惠码： ```NEW9```**
 
-[**长期稳定可用官网网址**](https://af2.bnaffloop.com/#/register?code=ITlfQijS)（长期可用）
+[**长期稳定可用官网网址**](https://new.bnaffloop.com/#/register?code=ITlfQijS)（长期可用）
 [备用1](https://www.gobitznet.com/aff=ITlfQijS)
 [备用2](https://www.thebitznet.com/aff=ITlfQijS)
 [备用3](https://www.tobitznet.com/aff=ITlfQijS)
 
+## DualNet
+
+如果对BitzNet的落地仍然感到不满意，希望获得更高质量的IP，亦或者是想与他人合租共享订阅，可以考虑DualNet，以优惠的价格享受Misaka等高级落地
+[DualNet](https://dualnet.tigaf88789.workers.dev)
+
 ## MESL
 
-[官网网址](https://dd.al/kAGfn)
+[官网网址](https://mesl.tigaf88789.workers.dev)
