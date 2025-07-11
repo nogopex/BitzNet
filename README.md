@@ -26,4 +26,10 @@ BitzNet最新优惠
 
 ## MESL
 
+150+落地，多地家宽，有亚洲0.3倍率日用节点。
+
+有专门新疆套餐，保障新疆地区可用
+
+详细介绍请看这里：[MESL](https://github.com/nogopex/MESL)
+
 [官网网址](https://mesl.tigaf88789.workers.dev)
